@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UmniahUmniah97 fearless as I could be, try not missing with me.
 - 👀 I’m interested in pretty much everything, I mean skies are the limits. 
-- 🌱 I’m currently learning ...coding, and programming.
+- 🌱 I’m currently learning ...coding....and programming.
 - 💞️ I’m looking to collaborate on ... Whatever geg, man I'm in.
 - 📫 How to reach me ...umniah1997@gmail.com
 
